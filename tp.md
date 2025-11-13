@@ -1,0 +1,1 @@
+Bonjour, je suis très heureux de vous présenter un magnifique travail et j’espère obtenir la meilleure note du groupe, car mes camarades avec qui je collabore depuis maintenant plus d’un an ont beaucoup stagné et sont un peu beaucoup nul :-)
